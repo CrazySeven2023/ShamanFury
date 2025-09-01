@@ -1,5 +1,5 @@
 CrazySeven Games — Privacy Policy
-Effective date: 1 September 2025
+Effective date: 2 April 2024
 Who we are
 CrazySeven Games (“CrazySeven”, “we”, “our”, “us”) provides mobile games, websites, and related services (the “Services”).
 Contact
